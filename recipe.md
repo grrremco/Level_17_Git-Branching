@@ -4,6 +4,31 @@
 Takes 30 minutes  
 Serves 4
 
+
+### INGREDIENTS
+ 
+#### FOR THE PASTE
+* 1 tbsp cumin
+* 1 tbsp coriander seeds
+* 2 cloves of garlic
+* 1 thumb size of fresh ginger
+* ½ a fresh red chilli
+* 1 bunch of fresh coriander
+* 1 heaped teaspoon of garam masala
+* ½ tsp smoked paprika
+* ½ tsp sea salt
+* ½ tsp freshly ground black pepper
+* 1 tsp tomato purée
+* 1 x 400g tin of chopped tomatoes
+#### FOR THE CURRY
+* 3 scallions
+* 300 g mushrooms we love oyster, but any mushrooms will do
+* 1 ½ tbsp oil
+* 2 x 400g tins of chickpeas
+* 1 400 g tin of coconut milk
+* ½ a lime juiced
+* chill flakes optional  
+
 ### INSTRUCTIONS
  
 1. In a dry frying pan, fry the cumin and coriander seeds for 3–5 minutes on a high heat until the cumin seeds start to pop, stirring regularly. Peel the garlic and ginger.
