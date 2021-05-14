@@ -1,8 +1,9 @@
 # **CHICKPEA TIKKA MASALA**  
+
 ### Chicken tikka masala has been called the UK’s national dish, originating when a chef added tomato soup to a curry to make it less spicy! Our version, based on chickpeas, is rich, creamy, and lovely!
 
-Takes 30 minutes  
-Serves 4
+_Takes 30 minutes_  
+_Serves 4_
 
 
 ### INGREDIENTS
@@ -19,7 +20,8 @@ Serves 4
 * ½ tsp sea salt
 * ½ tsp freshly ground black pepper
 * 1 tsp tomato purée
-* 1 x 400g tin of chopped tomatoes
+* 1 x 400g tin of chopped tomatoes  
+
 #### FOR THE CURRY
 * 3 scallions
 * 300 g mushrooms we love oyster, but any mushrooms will do
@@ -27,7 +29,8 @@ Serves 4
 * 2 x 400g tins of chickpeas
 * 1 400 g tin of coconut milk
 * ½ a lime juiced
-* chill flakes optional  
+* chill flakes optional 
+
 
 ### INSTRUCTIONS
  
